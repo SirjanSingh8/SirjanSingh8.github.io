@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **ML, deep learning**
 
-- 📫 How to reach me **sirjansingh1@gmail.com**
+- 📫 How to reach me **sirjansingh1@gmail.com** // **+917837360606**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
